@@ -8,4 +8,4 @@
 
 
 <p align="center"> i like prezoh, chiblee, persona 3, aksually, <br>
-alan wake, hotline miami, ++ more
+alan wake, hotline miami, guilty gear, ++
