@@ -5,3 +5,7 @@
 
 <p align="center"> delta he 07/19
 <br> professional field frolicker
+
+
+<p align="center"> i like prezoh, chiblee, persona 3, aksually, <br>
+alan wake, hotline miami, ++ more
