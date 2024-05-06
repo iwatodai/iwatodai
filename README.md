@@ -1,3 +1,5 @@
+<link href="style.css" rel="stylesheet" type="text/css" media="all">
+
 <p align="center"> <img src="https://i.pinimg.com/736x/0e/6a/70/0e6a705ce03be22b3487d55907a4e92c.jpg" width=200>
 
 
