@@ -5,7 +5,7 @@
 
 <p align="center"> delta / yuu. ⠀they
   <br> joyous individual
-  <br> <a href="https://rentry.co/siffrinterests">my interests</a>  ⠀<img src="https://caterpie.crd.co/assets/images/gallery05/ee54e985.gif?v=f7b7a140">
+  <br> <a href="https://rentry.co/siffrinterests">interests</a>  ⠀<a href="https://rentry.co/alanwake">info</a> <img src="https://caterpie.crd.co/assets/images/gallery05/ee54e985.gif?v=f7b7a140">
 <br> <br>
   <img src="https://caterpie.crd.co/assets/images/gallery14/82e3da47.png?v=f7b7a140"> 
 
