@@ -3,7 +3,7 @@
 <p align="center"> <img src="https://i.pinimg.com/736x/0e/6a/70/0e6a705ce03be22b3487d55907a4e92c.jpg" width=200>
 
 
-<p align="center"> delta. ⠀⠀they he
+<p align="center"> delta / yuu. ⠀they
   <br> joyous individual
   <br> <a href="https://rentry.co/siffrinterests">my interests</a>  ⠀<img src="https://caterpie.crd.co/assets/images/gallery05/ee54e985.gif?v=f7b7a140">
 <br> <br>
