@@ -10,5 +10,5 @@
   <br>
   <p align="center"> i am likely not involved in most drama on this game and i prefer 
     <br> to be left out of it. i sit with people who i consider my friends
-    <br> and that's it really! if you have a problem with me then i urge you
-    <br> to either use the hide button or talk it out with me in whispers ^_^
+    <br> and that's it really! i'm always willing to talk things out if theres
+    <br> an issue with something related to me ! ^__^
